@@ -1,6 +1,6 @@
 ## hi im melarky or warren. 15teen
 
-![Image Description]([https://example.com](https://u.cubeupload.com/melarky/patdd.png))
+![Image Description]([https://example.com](https://u.cubeupload.com/melarky/patdd.png)]
 
 he/him pls
 im into my chem, patd, the beatles, weezer nd umm more..
